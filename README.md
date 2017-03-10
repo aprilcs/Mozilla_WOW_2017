@@ -19,8 +19,15 @@ This is the repo for the most AWESOME PAR-TAY EVERRR!!!!
 Fantastic
 
 ![](https://media.giphy.com/media/LXONhtCmN32YU/giphy.gif)
+
+patch-1
+![](https://media.giphy.com/media/Vuw9m5wXviFIQ/giphy.gif)
+
+![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
+
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
 ![](http://replygif.net/i/1397.gif)
+
 
 All open nerds are invited!
 
